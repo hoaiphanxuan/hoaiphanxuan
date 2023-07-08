@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **phanxuanhoailtt@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFZEDfNQNM/YinwDKTG_S2WjzHAelTgvA/view?utm_content=DAFZEDfNQNM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFZEDfNQNM/YinwDKTG_S2WjzHAelTgvA/view?utm_content=DAFZEDfNQNM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [My CV](https://www.canva.com/design/DAFn8Y3Agjk/ulH59Yj0WyR7TShvsld4eA/edit?utm_content=DAFn8Y3Agjk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **I don't have any fun fact :((**
 
